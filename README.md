@@ -1,3 +1,4 @@
 # clanbestie117.github.io
 website clan bestie
-anjayyyy ropek bacot
+Chimeraland server{117}
+admin web {Ajure} 
